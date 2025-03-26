@@ -1,0 +1,1 @@
+# BSU_OS_collocvium_Vlasenko_10
